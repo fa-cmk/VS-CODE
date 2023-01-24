@@ -1,0 +1,6 @@
+Nacido en Atlanta y criado en Chicago, West ganó popularidad como productor musicall para el sello Roc-A-Fella Records a 
+principios de los años 2000, produciendo varios sencillos para artistas populares. Intentando perseguir una carrera como 
+un rapero, en 2004 West lanzó su álbum debut, The College Dropout, que alcanzó la aclamación de la crítica y el público, y fundó su propia discográfica, GOOD Music. Experimentó con una gran variedad de géneros musicalles y fue un cambio de    
+aire fresco para el hip-hop con sus álbumes Late Registration (2005), Graduation (2007) y 808s & Heartbreak (2008). Con inspiraciones en el maximalismo y minimalismo, el quinto y sexto álbum de West, My Beautiful Dark Twisted Fantasy (2010) 
+y Yeezus (2013) respectivamente, fueron un éxito crítico.5​ A partir de ahí lanzó The Life of Pablo (2016), Ye (2018), y Jesus is King (2019). La discografía de West también incluye los proyectos colaborativos Watch The Throne (2011) y Kids 
+See Ghosts (2018), junto a Jay-Z y Kid Cudi
